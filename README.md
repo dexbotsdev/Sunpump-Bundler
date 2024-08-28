@@ -12,7 +12,7 @@
 #If You wanna Purchase
 
 1.  Sale is Live from Now contact TG ID @dexbotsdev
-2. The Bot will be Pricedd 4999 TRX. 
+2. The Bot will be Pricedd 10SOL . 
 3. The Offer is on First come first serve 
 4. Offer is Only for First 5 Customers ONLY,  
 5. Bot requires captcha services and includes our personal logic, so bot will be obscured, no opensource.
